@@ -1,1 +1,1 @@
-# Grinnell-SandB-Digital-History-
+# Grinnell-SandB-Digital-History
